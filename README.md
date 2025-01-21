@@ -1,4 +1,4 @@
-# 💼 Purushotham Adluru Padmanabharaju
+# 💼 Purushotham Adluru Padmanabharaju ( Puru )
 
 
 📧 **Email:** purushothamraju488@gmail.com | 📞 **Phone:** +1(506) 230-9216 | 📍 **Location:** Fredericton, NB
